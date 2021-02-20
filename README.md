@@ -1,4 +1,4 @@
-### Hi there 👋
+### hi, my name is zygis ⚡⚡⚡
 
 <!--
 **trlmkb/trlmkb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
